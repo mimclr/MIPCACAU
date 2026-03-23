@@ -1,1 +1,1 @@
-Desenvolvipo por Labor Rual
+Desenvolvido por Labor Rual
